@@ -1,0 +1,2 @@
+# hakoo
+my ferst 
